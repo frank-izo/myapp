@@ -1,3 +1,3 @@
 MY APP APP
 
-## GH PAGES LINK - >
+## IT PAGES LINK - >
